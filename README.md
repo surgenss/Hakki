@@ -1,0 +1,2 @@
+# Hakki
+Hakkımda
